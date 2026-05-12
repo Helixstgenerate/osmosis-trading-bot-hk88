@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip Trading Bot for osmosis trading bot | DEX-arbitrage & front-running-detection, the #1 osmosis trading bot. Includes DEX-arbitrage and
 
 
 
